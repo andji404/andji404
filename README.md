@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ I chew Ice cubes.
+⚡ 🖕🏽
 
 
 # 💻 Tech Stack:
